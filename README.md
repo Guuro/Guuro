@@ -10,7 +10,9 @@
 <img src="https://files.catbox.moe/f5swzu.png" />
 </p>
 
-<img src="https://files.catbox.moe/9fkb64.gif" /> ℋallo !! I'm Boomi ₒᵣ Kai. 
+<img src="https://files.catbox.moe/9fkb64.gif" />
+<p align="center">
+ℋallo !! I'm Boomi ₒᵣ Kai. 
 I'm 14 y/o
 
 　　　　　　( 6 . 30 :33 )
@@ -23,14 +25,17 @@ confessions or reciprocation from me.
 Little memory issues, don't be mad if I forget smth.
 
 Istp, doomed ⁴w⁵.
+</p>
 <p align="center">
 <img src="https://files.catbox.moe/obhf28.png" />
 </p>
+<p align="center">
 Mostly afk, either with my friends or just making ponies. ^^
 
 c+h freely !! 
 
 Int ok, just don't copy or take heavy inspo of my ponies please.
+</p>
 <p align="center">
 <img src="https://files.catbox.moe/mllb9q.png"/>
 </p>
