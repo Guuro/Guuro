@@ -15,6 +15,8 @@ I'm 14 y/o
 
   ( 6 . 30 :33 )
 
+Spanish n BAD english.
+
 Multishipper n rarepair enjoyer, please be respectful of my preferences n I'll respect yours too.
 
 I'm aroace n lithromantic so don't expect any 
