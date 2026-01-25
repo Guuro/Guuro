@@ -32,5 +32,10 @@ I’m mostly AFK, either hanging out with my friends or making ponies. Feel free
 </p>
 
 <p align="center">
+<img src="https://files.catbox.moe/s6xtan.png" width="150">
+<img src="https://files.catbox.moe/xp3yk6.png" width="150">
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/amxpec.png" />
 </p>
