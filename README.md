@@ -7,7 +7,7 @@
 </p>
 　
 <p align="center">
-<a href="https://rentry.co/marwn/edit">ℛen</a>try　　𝓐t<a href="https://guuro.atabook.org/">abo</a>ok　　<a href="https://en.pronouns.page/@Guuro">𝓟rns</a>.pg
+<a href="https://rentry.co/marwn/">ℛen</a>try　　𝓐t<a href="https://rentry.co/myrk/">abo</a>ok　　<a href="https://en.pronouns.page/@Guuro">𝓟rns</a>.pg
 </p>
 　
 　
